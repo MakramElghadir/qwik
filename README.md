@@ -1,8 +1,1 @@
-# qwik
-dfsdfssdf
-dddd
-
-main.js suks
-
-
-ñ
+NO OLVIDAME!!
